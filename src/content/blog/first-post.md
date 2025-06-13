@@ -11,5 +11,5 @@ For years her best friend Raike has been the reason she's stayed in their villag
 Now with a broken heart, Emma is forced to move on and find something else to fill the hole that he's left behind. And what better way to do that than to go to the capital and become the kingdom's greatest herbalist? Well, it’s either that or be executed for treason.
 
 
-[Next Chapter →](/leaves-1)
+
 
