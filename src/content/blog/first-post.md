@@ -1,7 +1,7 @@
 ---
 title: "Leaves"
 description: "Rejected by her best friend..."
-pubDate: "Jun3 13th, 2025"
+pubDate: "June 13th, 2025"
 heroImage: "/blog-placeholder-3.jpg"
 ---
 
